@@ -1,0 +1,2 @@
+# ejerciciosema6
+ejercicio
